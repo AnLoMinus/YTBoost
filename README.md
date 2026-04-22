@@ -1,5 +1,8 @@
 # 🚀 קמפיין 50 מנויים ליוטיוב – הדרך ללייב ראשון (YTBoost)
 
+<img width="1536" height="1024" alt="YTBoost- Reach 50 subscribers, go live!" src="YTBoost- Reach 50 subscribers, go live!.png" />
+
+
 ## 🎯 המטרה
 
 להגיע ל־50 מנויים כדי לפתוח אפשרות לשידורי לייב ביוטיוב 🔴
